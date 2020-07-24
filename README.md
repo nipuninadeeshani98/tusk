@@ -8,6 +8,10 @@ Pasta
 Chicken Fry
 
 
+Beans
+Pizza
+
+
 Thank You :)
 
 
